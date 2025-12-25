@@ -1,1 +1,0 @@
-# Logans dawgdealer.com
